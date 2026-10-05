@@ -1,2 +1,2 @@
 # JDCHS-Assignments-
-Duane stuff
+slop from duane's class
